@@ -1,0 +1,8 @@
+- 👋 Hi, I’m Anirban Dutta
+- 👀 I’m interested in Sales & marketing
+- 🌱 I’m currently learning new methods of AI and its implementation on Sales and Marketing, New Product Research & Development
+- 💞️ I’m looking to collaborate on newer oppurtunities for growth and development
+- 📫 You can write to me at danirban997@gmail.com or call me at 8697906709
+- 😄 Pronouns: He / Him / Indian 
+- ⚡ Fun fact: PAN India Sales and Marketing experience
+- Get in touch to know more about Updates and Standard Ammendments in Construction Industry
